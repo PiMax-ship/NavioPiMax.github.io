@@ -1,0 +1,1 @@
+# naviopimax.github.io
